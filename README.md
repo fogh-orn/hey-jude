@@ -55,3 +55,5 @@ Nah nah nah nah nah nah, nah nah nah, hey Jude
 ## Added From Local Repo
 
 This is to test how local repo works, how local branch works.
+
+Now that we have published the new branch to GitHub, this line is to test how the syncing works between the remote and the local.
