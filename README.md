@@ -29,11 +29,11 @@ And don't you know that it's just you, hey Jude, you'll do
 The movement you need is on your shoulder  
 Nah nah nah nah nah nah nah nah nah yeah  
 
-Hey Jude, don't make it bad
-Take a sad song and make it better
-Remember to let her under your skin
-Then you'll begin to make it
-Better better better better better better, oh
+Hey Jude, don't make it bad  
+Take a sad song and make it better  
+Remember to let her under your skin  
+Then you'll begin to make it  
+Better better better better better better, oh  
 
 Nah nah nah nah nah nah, nah nah nah, hey Jude  
 Nah nah nah nah nah nah, nah nah nah, hey Jude  
