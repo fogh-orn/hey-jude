@@ -35,25 +35,19 @@ Remember to let her under your skin
 Then you'll begin to make it
 Better better better better better better, oh
 
-Nah nah nah nah nah nah, nah nah nah, hey Jude
-Nah nah nah nah nah nah, nah nah nah, hey Jude
-Nah nah nah nah nah nah, nah nah nah, hey Jude
-Nah nah nah nah nah nah, nah nah nah, hey Jude
-Nah nah nah nah nah nah, nah nah nah, hey Jude
-Nah nah nah nah nah nah, nah nah nah, hey Jude
-Nah nah nah nah nah nah, nah nah nah, hey Jude
-Nah nah nah nah nah nah, nah nah nah, hey Jude
-Nah nah nah nah nah nah, nah nah nah, hey Jude
-Nah nah nah nah nah nah, nah nah nah, hey Jude
-Nah nah nah nah nah nah, nah nah nah, hey Jude
-Nah nah nah nah nah nah, nah nah nah, hey Jude
-Nah nah nah nah nah nah, nah nah nah, hey Jude
-Nah nah nah nah nah nah, nah nah nah, hey Jude
-Nah nah nah nah nah nah, nah nah nah, hey Jude
-Nah nah nah nah nah nah, nah nah nah, hey Jude
-
-What's the return?
-This goonwork?
-
-This gonnawork?
-How about this
+Nah nah nah nah nah nah, nah nah nah, hey Jude  
+Nah nah nah nah nah nah, nah nah nah, hey Jude  
+Nah nah nah nah nah nah, nah nah nah, hey Jude  
+Nah nah nah nah nah nah, nah nah nah, hey Jude  
+Nah nah nah nah nah nah, nah nah nah, hey Jude  
+Nah nah nah nah nah nah, nah nah nah, hey Jude  
+Nah nah nah nah nah nah, nah nah nah, hey Jude  
+Nah nah nah nah nah nah, nah nah nah, hey Jude  
+Nah nah nah nah nah nah, nah nah nah, hey Jude  
+Nah nah nah nah nah nah, nah nah nah, hey Jude  
+Nah nah nah nah nah nah, nah nah nah, hey Jude  
+Nah nah nah nah nah nah, nah nah nah, hey Jude  
+Nah nah nah nah nah nah, nah nah nah, hey Jude  
+Nah nah nah nah nah nah, nah nah nah, hey Jude  
+Nah nah nah nah nah nah, nah nah nah, hey Jude  
+Nah nah nah nah nah nah, nah nah nah, hey Jude  
