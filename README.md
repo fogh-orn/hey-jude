@@ -51,3 +51,7 @@ Nah nah nah nah nah nah, nah nah nah, hey Jude
 Nah nah nah nah nah nah, nah nah nah, hey Jude  
 Nah nah nah nah nah nah, nah nah nah, hey Jude  
 Nah nah nah nah nah nah, nah nah nah, hey Jude  
+
+## Remote Branching Test
+
+This is to test how remote branching "appears" in local client (local branch needs to be **published** to remote repo).
